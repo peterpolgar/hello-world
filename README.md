@@ -1,3 +1,3 @@
 # hello-world
 its a repo
-yeah men
+yeah uszkve
